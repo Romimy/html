@@ -8,7 +8,7 @@
 
 <body>
 
-<a href="https://www.xvideos.com/">Ты самая лучшая и конченна подруга в мире)))</a>
+<a href="https://www.xvideos.com/">Ты самая лучшая и конченная подруга в мире)))</a>
 
 </body>
 
